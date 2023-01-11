@@ -1,0 +1,1 @@
+# SMP---Sistemi-Per-Menaxhmimin-e-Projekteve
